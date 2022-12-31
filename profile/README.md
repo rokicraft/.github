@@ -1,1 +1,1 @@
-# Welcome to the rokicraft :octocat:
+#   Welcome to the rokicraft 👏
